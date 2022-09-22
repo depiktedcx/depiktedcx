@@ -1,15 +1,4 @@
-### Hi there 👋
-
-The name is Kelvin
-
-Tertiary student
-Waikato 19-20
-Open Poly 21-22
-Massey 22-23
-
-Compsci major
-
-No industry experience
+### they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head they are in your head
 
 <!--
 **depiktedcx/depiktedcx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
